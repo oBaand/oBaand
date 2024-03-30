@@ -1,3 +1,3 @@
-- 👋 Hi, I’m @oBaand
-- 👀 I’m interested in Estude and Programming for html and Python
-- ⚡ Fun fact: Games
+- 👋 Hi, I’m @oBaand.
+- 👀 I’m interested in Estude and Programming for html and Python.
+- ⚡ Fun fact: Estude books, fiction and fantasy.
