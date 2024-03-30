@@ -1,3 +1,3 @@
 - 👋 Hi, I’m @oBaand.
-- 👀 I’m interested in Estudin and Programming for html and Python.
-- ⚡ Fun fact: Estudin books, fiction and fantasy.
+- 👀 I’m interested in Estudar e Programming for html e Python.
+- ⚡ Fun fact: Ler livros de Ficção ciêntifica, História diversas, e Fantasia.
