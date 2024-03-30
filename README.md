@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @oBaand
+- 👀 I’m interested in Estude and Programming for html and Python
+- ⚡ Fun fact: Games
